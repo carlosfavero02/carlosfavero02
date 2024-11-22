@@ -8,7 +8,5 @@ Você pode entrar em contato comigo 📫
 c.favero@escola.pr.gov.br
 @carlosfavero02
 
+![](https://media1.tenor.com/m/1_1uKIw6s3AAAAAd/caf%C3%A9-diego.gif)
 
-
-
-![](https://tenor.com/sHR9tVYnFS0.gif)
